@@ -1,1 +1,0 @@
-# BAIK_with_GPT
